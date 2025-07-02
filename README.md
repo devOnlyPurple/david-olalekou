@@ -10,4 +10,4 @@
 - 🧑‍⚕️ Kondjigbale (health platform)
 
 ## 📫 Let's connect
-[LinkedIn](https://www.linkedin.com/in/david-olalekou-930857255/) • [Email](mailto:tonemail@example.com)
+[LinkedIn](https://www.linkedin.com/in/david-olalekou-930857255/) • [Email](mailto:daviosowa9@gmail.com)
